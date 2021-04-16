@@ -1,1 +1,0 @@
-# dwmorgan-technical-exam
